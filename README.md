@@ -1,1 +1,1 @@
-# ARS
+# Antarctic Research Site - Omega
